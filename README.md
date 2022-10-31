@@ -1,3 +1,3 @@
 # ronnyeka000.github.io
 
-belum update cv terbaru
+update terakhir 31 oktober 2022
